@@ -1,1 +1,0 @@
-guia-myhotel---calendario-de-precos.md
